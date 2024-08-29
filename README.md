@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ambiorix Alexis Martinez Rosario
-- 👀 I’m interested in Programming 
+- 👀 I’m interested in all about Programming 
 - 🌱 I’m currently learning new programming languages
 - 💞️ I’m looking to collaborate on a new company or new Project
 - 📫 How to reach me, by emil: ambiorix565@gmail.com or LinkedIn: https://www.linkedin.com/in/ambiorix-alexis-mart%C3%ADnez-rosario-6589a4183/
